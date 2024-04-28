@@ -16,8 +16,6 @@ Preprocessed ACM can be found in:
 链接：https://pan.baidu.com/s/1cGhhHjFTDFLx_ipkJcrXKw 
 提取码：chf5
 
-https://bupteducn-my.sharepoint.com/:u:/g/personal/jhy1993_bupt_edu_cn/EfLZcHE2e4xBplCVnzcJbQYBurNVOCk7ZIne2YsO3jKbSw?e=vMQ18v
-
 Preprocessed DBLP can be found in:
 链接：https://pan.baidu.com/s/1YMwVGK3WqrsmjAJ7cHfekg 
 提取码：yo8g
